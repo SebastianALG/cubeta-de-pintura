@@ -1,0 +1,1 @@
+# cubeta-de-pintura
